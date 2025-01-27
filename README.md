@@ -1,2 +1,0 @@
-ShaneOhashi.github.io
-
